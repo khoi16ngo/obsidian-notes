@@ -8,4 +8,6 @@
 
 - fenryk with some humans approaches
 	- they say only one dwarf can be in the gutters
-	- 
+
+- fenrick dies slash through
+	- "Rat king will see this"
