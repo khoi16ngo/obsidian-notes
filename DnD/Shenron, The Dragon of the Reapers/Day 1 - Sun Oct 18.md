@@ -21,3 +21,6 @@
 - custodian throwing the bodies in the wasteland
 
 - gnome comes up and grisk wants us back
+
+- goes to grisk office, time for fight with Hugh Pough
+	- defeat Hugh Pough
