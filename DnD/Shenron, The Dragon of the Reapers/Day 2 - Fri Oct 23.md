@@ -26,3 +26,7 @@
 - sir cum and thel come back out to talk to shenron and hugh
 	- mother ren says to the rat kings nest, retrieve her goods first to find secret path 
 	- goods in the deep stairs, go to the bone gallery
+
+- head to the deep stairs, bridge with a gap in between
+- everyone makes jump, shenron falls into the raveen and drowns, hugh saves shenron
+- the noise alerts guards and lt orion, fight
